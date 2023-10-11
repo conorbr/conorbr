@@ -1,5 +1,5 @@
 # 💫 About Me:
-Project Manager and Team lead currently working at Citi Group.<br>
+Team lead currently working at Hostelworld.<br>
 
 
 ## 🌐 Socials:
